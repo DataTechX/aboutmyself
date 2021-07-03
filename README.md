@@ -1,3 +1,3 @@
 # About Myself
 
-Website about ทe no idea
+Website about me no idea
